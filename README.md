@@ -1,1 +1,2 @@
-# vineti-midterm
+<p>I am Hovhannes and I am currently enrolled in the Master's program of Project Management at Armenian State University of Economics, where I expect to graduate in May 2019. I have attended my B. Sc degree in Mathematical Methods and Models in Economics (faculty of Informatics and Statistics) from ASUE. 
+<p>I am a conscientious person who works hard and pays attention to detail. I am also a great team player.
